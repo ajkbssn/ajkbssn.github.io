@@ -1,4 +1,4 @@
-## ajkbssn.github.io
+## Current status
 
 ajkbssn is 50 something.
 He is working on something to help us all better understand the economy.
