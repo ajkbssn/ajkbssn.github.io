@@ -1,6 +1,9 @@
 ## Current status
 
-ajkbssn is 50 something.
+ajkbssn is north of 50.
+When younger he thought people got tired and less curious with age.
+Now he knows better.
+
 He is working on something to help us all better understand the economy.
 Economics used to be the science of limited resources.
 Sadly, today it is more about what we can easily measure.
